@@ -10,9 +10,8 @@
 
 
 ## 📍 Contact Info  
-- 🏠 **Address:** 91 Radha Swami Society, Ved Road, Surat, Gujarat, India  
-- 📧 **Email:** [bishoyisantoshk@gmail.com](mailto:bishoyisantoshk@gmail.com)  
-- 📱 **Mobile:** +91 8200653866 / 8128198982  
+- 🏠 **Address:** Surat, Gujarat, India  
+- 📧 **Email:** [bishoyisantoshk@gmail.com](mailto:bishoyisantoshk@gmail.com)   
 
 ---
 
